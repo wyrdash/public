@@ -12,6 +12,7 @@ Things I’d like to have primed in my brain every morning. This is stuff curren
 1. **Cultivate quality time:** With myself, with other people, and with my interests.
 2. **Look at what's uneasy:** Don't avoid the unresolved, unwanted, conflicted things that would benefit from attention. 
 3. **Slog towards riding a bike on my 100th birthday:** Eat mostly plants. Exercise regularly. Think decades, not days.
+4. **Finish what is needed:** Complete work before it's due. Don't allow yourself to wander.
 4. Review/update this list
 
 ## Review Every Month 
