@@ -44,25 +44,30 @@ It's going to fucking happen, translate the Fresh Prince theme into Latin, and s
 
 ### On the purpose of life
 1. There is no all-encompassing purpose, we have to make our own.
+
 ### On personal conduct
 1. No one is beyond forgiveness.
+
 ### On Morality
 
 ### On Spirituality
 
 ### On Science & The Universe
 1. Science is explaining what we know about the universe. It changes as we learn more. 
+
 ### On Health
 
 ### On Technology
 
 ### On The Self
 1. Humans are awesome in the fact that we can examine our own brain- like pointing a camera at a screen it is streaming to.
+
 ### On Privacy
 
 ### On Logic
 1. There is no perfect logical system
 2. Logic is important, but do not get bound by one system (see above).
+
 ### On Education
 
 ### On Politics & The Economy
@@ -72,10 +77,13 @@ It's going to fucking happen, translate the Fresh Prince theme into Latin, and s
 ### On Biases
 1. We are all biased, but sometimes this can make us better.
 2. Biases develop for a reason, but they can become toxic. 
+
 ### On Love
 1. I love Megg
+
 ### Meta
 1. Everything is subject to change. This list will be added to in time.
+
 ### Wagers
 
 ## Personal Canon
