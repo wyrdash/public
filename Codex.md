@@ -9,10 +9,9 @@
 ## Review Every Day
 Things I’d like to have primed in my brain every morning. This is stuff currently churning in the front of my brain, which probably has high turnover but which also has a good chance of getting somewhere new.
 
-1. **Cultivate quality time:** With myself, with other people, and with my interests.
-2. **Look at what's uneasy:** Don't avoid the unresolved, unwanted, conflicted things that would benefit from attention. 
-3. **Slog towards riding a bike on my 100th birthday:** Eat mostly plants. Exercise regularly. Think decades, not days.
-4. **Finish what is needed:** Complete work before it's due. Don't allow yourself to wander.
+1. **Be unexpectedly unexpected:** Do more than what people expect of you, but don't be gratuitous about it.
+2. **Do the Hard Thing:** Slay the megabeast, win life.
+3. **Seek the good in people:** Almost no one is past forgiveness, other than maybe Hitler.
 4. Review/update this list
 
 ## Review Every Month 
