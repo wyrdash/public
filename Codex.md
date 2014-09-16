@@ -9,7 +9,7 @@
 ## Review Every Day
 Things I’d like to have primed in my brain every morning. This is stuff currently churning in the front of my brain, which probably has high turnover but which also has a good chance of getting somewhere new.
 
-1. **Be unexpectedly unexpected:** Do more than what people expect of you, but don't be gratuitous about it.
+1. **Don't Be Violent:** Nonviolence is very important. Also, don't preach it either.
 2. **Do the Hard Thing:** Slay the megabeast, win life.
 3. **Seek the good in people:** Almost no one is past forgiveness, other than maybe Hitler.
 4. Review/update this list
