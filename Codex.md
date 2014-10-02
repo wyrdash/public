@@ -11,7 +11,7 @@ Things I’d like to have primed in my brain every morning. This is stuff curren
 
 1. **Don't Be Violent:** Nonviolence is very important. Also, don't preach it either.
 2. **Do the Hard Thing:** Slay the megabeast, win life.
-3. **Seek the good in people:** Almost no one is past forgiveness, other than maybe Hitler.
+3. **Seek the good in people:** Almost no one is past forgiveness.
 4. Review/update this list
 
 ## Review Every Month 
@@ -46,6 +46,7 @@ It's going to fucking happen, translate the Fresh Prince theme into Latin, and s
 
 ### On personal conduct
 1. No one is beyond forgiveness.
+2. Lean towards touching people less, to stop self from 
 
 ### On Morality
 
@@ -57,12 +58,13 @@ It's going to fucking happen, translate the Fresh Prince theme into Latin, and s
 ### On Health
 
 ### On Technology
+1. Technology will improve humanity, do not be afraid of it.
 
 ### On The Self
 1. Humans are awesome in the fact that we can examine our own brain- like pointing a camera at a screen it is streaming to.
 
 ### On Privacy
-
+1. Everyone needs privacy, let them have it. It doesn't mean they hate you.
 ### On Logic
 1. There is no perfect logical system
 2. Logic is important, but do not get bound by one system (see above).
@@ -104,10 +106,17 @@ It's going to fucking happen, translate the Fresh Prince theme into Latin, and s
 
 ### 2014: ++----+-
 
+##### Sep 2014
+*New Goal:* Meditate 5 days a week, any time, any length
+*Outcome of previous goal:* Hit
+Started school, gotten in to the full swing of things, and to be honest, I kind of like it. I started the DND group, Me, Chris, Kas, Rose, and Mich.
+
+Oh man,
 ##### Aug 2014
 *New Goal:* Do a sun salutation 5 days a week, in the morning 
 
 Whoo, a lot of things happened this month. I finished my first "real" job, working at Bushy Hill, and what a great time that was. I also got my TWSBI 580AL, which I love a whole lot, and will last me a long time(hopefully). My next "goal pen" is a Kaweco AL-Sport, which I might get in December. I also got my first pair of selvedge jeans, which while it won't fade because it's black wash/black weft, it will still work for what I need it to do. I also started cross country, and so far, I'm feeling pretty good about it. School is also something I'm looking forward to, because I want to learn.  
+
 
 # Yearly Reports
 
