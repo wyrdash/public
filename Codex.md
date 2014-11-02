@@ -74,13 +74,12 @@ It's going to fucking happen, translate the Fresh Prince theme into Latin, and s
 ### On Politics & The Economy
 
 ### On The Future Of Earth (2100)
-
+1. Robots will automate 
 ### On Biases
 1. We are all biased, but sometimes this can make us better.
 2. Biases develop for a reason, but they can become toxic. 
 
 ### On Love
-1. I love Megg
 
 ### Meta
 1. Everything is subject to change. This list will be added to in time.
@@ -105,11 +104,14 @@ It's going to fucking happen, translate the Fresh Prince theme into Latin, and s
 # Monthly Reports
 
 ### 2014: ++----+-
-
+##### Oct 2014
+*New Goal:* Don't DO THE THING!
+*Outcome of previous goal:* Hit
+A buncha things happened. Meg broke up with me, first and foremost, but also a lot of development happened towards me becoming vegan. My grades closed for Q1, and I'm doing a lot better than my other 2 years of high school. 
 ##### Sep 2014
 *New Goal:* Meditate 5 days a week, any time, any length
 *Outcome of previous goal:* Hit
-Started school, gotten in to the full swing of things, and to be honest, I kind of like it. I started the DND group, Me, Chris, Kas, Rose, and Mich.
+Started school, gotten in to the full swing of things, and to be honest, I kind of like it. I started the DND group, Me, Chris, Kas, Rose, and Campbell.
 
 Oh man,
 ##### Aug 2014
