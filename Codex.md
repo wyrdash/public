@@ -102,10 +102,17 @@ It's going to fucking happen, translate the Fresh Prince theme into Latin, and s
 
 
 # Monthly Reports
-
-### 2014: ++----+-
+### 2015:/
+##### Jan 2015
+*New Goal:* Drink at least 3 fills of your water bottle.
+### 2014: ////////++++/
+##### Dec 2014
+Did not do.
+##### Nov 2014
+Forgot to do; oops.
+*Outcome of previous goal:* Hit
 ##### Oct 2014
-*New Goal:* Don't DO THE THING!
+*New Goal:* Don't mess THE THING up!
 *Outcome of previous goal:* Hit
 A buncha things happened. Meg broke up with me, first and foremost, but also a lot of development happened towards me becoming vegan. My grades closed for Q1, and I'm doing a lot better than my other 2 years of high school. 
 ##### Sep 2014
@@ -121,4 +128,5 @@ Whoo, a lot of things happened this month. I finished my first "real" job, worki
 
 
 # Yearly Reports
+16: Ended the year alone. Forshadowing? Probably not (2014)
 
