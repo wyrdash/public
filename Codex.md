@@ -98,6 +98,7 @@ It's going to fucking happen, translate the Fresh Prince theme into Latin, and s
 
 [Godel, Escher, Bach, an Eternal Golden Braid](http://www.amazon.com/G%C3%B6del-Escher-Bach-Eternal-Golden/dp/0465026567/ref=sr_1_1_ha?s=books&ie=UTF8&qid=1409619442&sr=1-1&keywords=godel+escher+bach) - Douglas Hofstadter
 
+[I am a Strange Loop](http://www.amazon.com/Am-Strange-Loop-Douglas-Hofstadter/dp/0465030793) - Douglas Hofstadter
 ### My own favorite creations
 
 
@@ -105,7 +106,7 @@ It's going to fucking happen, translate the Fresh Prince theme into Latin, and s
 ### 2015:/
 ##### Jan 2015
 *New Goal:* Drink at least 3 fills of your water bottle.
-### 2014: ////////++++/
+### 2014: /////////+++/
 ##### Dec 2014
 Did not do.
 ##### Nov 2014
